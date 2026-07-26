@@ -14,3 +14,11 @@
 
 
 <img width="247" height="162" alt="Screenshot 2026-07-20 181112" src="https://github.com/user-attachments/assets/f3ee8355-2639-4f55-81af-93f1a01c26a5" />
+
+
+
+
+
+
+
+<img width="422" height="352" alt="Screenshot 2026-07-26 081940" src="https://github.com/user-attachments/assets/4e733c94-533c-4c57-a762-a7541a4e7664" />
