@@ -21,5 +21,6 @@
 
 
 
- <img width="422" height="352" alt="Screenshot 2026-07-26 081940" src="https://github.com/user-attachments/assets/4e733c94-533c-4c57-a762-a7541a4e7664" /> WEIRDO!! @bunluke
+ <img width="422" height="352" alt="Screenshot 2026-07-26 081940" src="https://github.com/user-attachments/assets/4e733c94-533c-4c57-a762-a7541a4e7664" /> 
  
+my friends evan and @bunluke they're kind dw ᰔ
