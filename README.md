@@ -9,19 +9,17 @@
 
 
  
-(˶ᵔ ᵕ ᵔ˶) ‹𝟹    ୭ ˚. ᵎᵎ  Some oomfs.. 
-
-
-
-<img width="247" height="162" alt="Screenshot 2026-07-20 181112" src="https://github.com/user-attachments/assets/f3ee8355-2639-4f55-81af-93f1a01c26a5" />
 
 
 
 
 
 
+https://github.com/user-attachments/assets/02579d2e-ac59-46ef-ba5c-ce203e73ec9c
 
 
-    the one pooping is @bunluke
 
- <img width="422" height="352" alt="Screenshot 2026-07-26 081940" src="https://github.com/user-attachments/assets/4e733c94-533c-4c57-a762-a7541a4e7664" /> 
+
+
+https://github.com/user-attachments/assets/10f1ad8f-8d26-43cf-a974-a9e348e78e62
+
