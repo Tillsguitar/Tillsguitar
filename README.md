@@ -9,6 +9,7 @@
 <p align="center"><img width="150" height="20" alt="3741843k19xdrilfh" src="https://github.com/user-attachments/assets/e8616d6f-a9f6-4ce3-8c73-8d133692d602" /></p>
 
   
+<p align="center"><img width="278" height="33" alt="Screenshot 2026-08-05 130719" src="https://github.com/user-attachments/assets/c4b01851-4804-4339-9fa5-82c60c815ee9" /></p>
  
 
 
