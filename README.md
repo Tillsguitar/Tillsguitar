@@ -10,6 +10,6 @@
 
   
 <p align="center"><img width="278" height="33" alt="Screenshot 2026-08-05 130719" src="https://github.com/user-attachments/assets/c4b01851-4804-4339-9fa5-82c60c815ee9" /></p>
- 
+<p align="center">Thank you!! @ponychievements !!</p> 
 
 
