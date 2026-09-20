@@ -14,8 +14,10 @@
 <p align="center"><img width="240" height="33" alt="Screenshot 2026-08-10 115945" src="https://github.com/user-attachments/assets/0935dea5-2847-492b-9acf-7bde4e33fdba" /></p>
 
 <p align="center">Thank you!! @pt-fashion @ponychievements @ponytowncosplayers !!</p> 
-<p align="center"><img width="504" height="378" alt="download (57)" src="https://github.com/user-attachments/assets/771e64ef-d2db-4db8-84a7-11109df3ce4a" /></p>
-<p align="center"> evan aug me and will bestest online oomfs foreva ♡</p>
+<p align="center"><img width="374" height="403" alt="download (58)" src="https://github.com/user-attachments/assets/330b403d-9446-4b18-b48b-4181506df556" /></p>
+
+
+<p align="center"> will,fawn,me,aug and evan bestest online oofms foreva ♡</p>
 
 
 
